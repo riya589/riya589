@@ -8,4 +8,4 @@
 🚀 **Projects:** Uber Trip Analysis Dashboard, Smart-Travel Platform, Portfolio Website  
 
 📫 **Email:** riyaroy2264dns@gmail.com  
-🔗 **LinkedIn:** linkedin.com/in/riya-roy-646b05289
+🔗 **LinkedIn:** https://www.linkedin.com/in/riya-roy-646b05289/
